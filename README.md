@@ -1,6 +1,6 @@
 # jet-lag2
 projects
 hello im a youtuber
-:__**ZHARKBOY**__:
+__ZHARKBOY__
 
 #WOW# :bowtie: Im The Best YouTuber :wink:  
