@@ -3,4 +3,4 @@ projects
 hello im a youtuber
 <h1>_**ZHARKBOY**_<h1>
 
-#WOW# :bowtie: Im The Best YouTuber :_**wink**_:  
+#WOW# :bowtie: Im The Best YouTuber :wink:  
